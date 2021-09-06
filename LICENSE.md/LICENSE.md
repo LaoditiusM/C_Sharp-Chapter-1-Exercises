@@ -1,1 +1,1 @@
-You many copy and paste. Enjoy 
+You may copy and paste. Enjoy 
